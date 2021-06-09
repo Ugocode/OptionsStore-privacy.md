@@ -128,4 +128,4 @@ If you have questions or comments about this notice, you may email us at obiohau
 
 
 Ugocode
-Adolphus Wabara Street Wuye, FCT Abuja 902101 Nigeria
+Adolphus Wabara Street, Abuja 902101 Nigeria
